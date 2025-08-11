@@ -1,1 +1,0 @@
-![alt text](<Screenshot 2025-08-11 152440.png>) ![alt text](<Screenshot 2025-08-11 152423.png>) ![alt text](<Screenshot 2025-08-11 152431.png>)
